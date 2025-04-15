@@ -157,7 +157,9 @@ b. **Avoid Forgetting** --- Have such device store SA0;
 
 References including repercussion of this and adjacent projects in social media can be found in the links below:
 
-[Demo](https://mega.nz/file/vfwhRTwZ#sP3hSRthQNssWRdcmD8XRNIeJX7Eq174ImY4eva_Pwo)
+[LATEST DEMO](https://youtu.be/bI8fiGmpHR0)
+
+[Demo (old)](https://mega.nz/file/vfwhRTwZ#sP3hSRthQNssWRdcmD8XRNIeJX7Eq174ImY4eva_Pwo)
 
 [Official Linktree](https://linktr.ee/greatwallt3)
 
